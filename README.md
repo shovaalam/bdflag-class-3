@@ -1,0 +1,1 @@
+# bdflag-class-3
